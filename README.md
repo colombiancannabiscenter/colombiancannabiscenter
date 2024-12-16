@@ -1,6 +1,6 @@
 # Colombian Cannabis Center
 
-![Colombian Cannabis Center Logo](https://colombiancannabiscenter.com/logo.png)
+![Colombian Cannabis Center Logo](https://colombiancannabiscenter.com/wp-content/uploads/2023/10/cropped-web_ccc-03-150x49.png)
 
 ## Bienvenido a Colombian Cannabis Center 🌱
 
